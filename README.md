@@ -25,7 +25,9 @@ Rs. 3000 Stipend will also be given to Interns after completion of Internships !
 
 2-6 Weeks Internship are going on as per your preferences.
 
-Training will also be provided to the Interns who are Interested to do so.
+Training will also be provided to the Interns who are Interested to do so. (Who don't have any skills)
+
+Fun & learn is our training for Everyone.
 
 ## CONTACT
 
