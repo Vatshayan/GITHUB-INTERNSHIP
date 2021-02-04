@@ -1,4 +1,4 @@
-# INTERNSHIP
+# ONLINE VIRTUAL INTERNSHIP
 Internship available for Everyone on Machine Learning, Cryptography, Data science, IOT, Security and Web Development
 
 Internship Available on-
@@ -28,4 +28,6 @@ Rs. 3000 Stipend will also be given to Interns after completion of Internships !
 Send your Resume, Queries or Question on **vatshayan007@gmail.com** for Internship.
 
 Read here - **https://college-projects-help.blogspot.com/p/internship.html**
+
+
 
