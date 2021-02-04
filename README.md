@@ -25,6 +25,7 @@ Rs. 3000 Stipend will also be given to Interns after completion of Internships !
 
 2-6 Weeks Internship are going on as per your preferences.
 
-Send your Resume, Queries or Question on vatshayan007@gmail.com for Internship.
+Send your Resume, Queries or Question on **vatshayan007@gmail.com** for Internship.
 
 Read here - **https://college-projects-help.blogspot.com/p/internship.html**
+
