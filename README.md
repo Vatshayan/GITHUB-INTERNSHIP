@@ -19,6 +19,10 @@ Internship Available on-
 
 8. Cryptography
 
+9. Digital Marketing 
+
+10. Content Writing 
+
 Interns will get Internship Certificate, Prize and Perks.
 
 Rs. 3000-5000 Stipend will also be given to Interns after completion of Internships ! (Indian Interns)
