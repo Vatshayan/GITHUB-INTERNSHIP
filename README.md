@@ -40,6 +40,10 @@ Fun & learn is our training for Everyone.
 
 ## CONTACT
 
+Hi there, 
+I am CEO of MLbox a Machine Learning Service Provider Startup. 
+I am also Co-founder of Edifice(College Project Provider).
+
 Send your Resume, Queries or Question on **vatshayan007@gmail.com** for Internship.
 
 Read here - **https://college-projects-help.blogspot.com/p/internship.html**
