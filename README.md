@@ -29,9 +29,9 @@ Internship Available on-
 
 Interns will get Internship Certificate, Prize and Perks.
 
-Rs. 3000-5000 Stipend will also be given to Interns after completion of Internships ! (Indian Interns)
+Rs. 10000 Stipend will also be given to Interns after completion of Internships ! (Top 10 Indian Interns)
 
-$ 50 - $ 60 Stipend for International Interns.
+$ 200 Stipend for International Interns. (Top 3 Interns)
 
 2-6 Weeks Internship are going on as per your preferences.
 
