@@ -1,4 +1,5 @@
 # ONLINE VIRTUAL INTERNSHIP
+![Blue and Yellow Speech Bubble Job Vacancy Announcement](https://user-images.githubusercontent.com/28294942/125484822-b0d2a136-e32a-497f-839a-19325a6af334.jpg)
 
 ![1613318579566](https://user-images.githubusercontent.com/28294942/107912871-5443e000-6f85-11eb-976c-9c0c990327c6.jpg)
 
