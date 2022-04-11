@@ -49,8 +49,6 @@ I am Founder of CSE Projects: [LINK](https://www.cse-projects.com)
 
 Send your Resume, Queries or Question on **vatshayan007@gmail.com** for Internship.
 
-Read here(Blog) - **[LINK](https://college-projects-help.blogspot.com/p/internship.html)**
-
 Let's Learn, Grow & Work together :) 
 
 ### CSE Projects: [LINK](https://www.cse-projects.com)
