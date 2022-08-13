@@ -27,6 +27,8 @@ Internship Available on-
 
 10. Content Writing 
 
+11. Blockchain 
+
 Interns will get Internship Certificate, Prize and Perks.
 
 Rs. 2000-5000 Stipend will also be given to Interns after completion of Internships ! (Top 10 Indian Interns)
@@ -39,17 +41,6 @@ Training will also be provided to the Interns who are Interested to do so. (Who 
 
 Fun & learn is our training for Everyone.
 
-## CONTACT
+### Website : https://www.finalproject.in/
 
-Hi there, 
-
-I am CEO of MLbox a Machine Learning Service Provider Startup. 
-
-I am Founder of CSE Projects: [LINK](https://www.cse-projects.com) 
-
-Send your Resume, Queries or Question on **vatshayan007@gmail.com** for Internship.
-
-Let's Learn, Grow & Work together :) 
-
-### CSE Projects: [LINK](https://www.cse-projects.com)
 
